@@ -8,7 +8,7 @@ Trabalho com a criação e venda de **infoprodutos** pensados para pais, educado
 
 ## O que você encontra por aqui (e nos meus canais):
 🧠 **Infoprodutos:**
-* E-books, guias práticos, atividades e outros materiais digitais focados em dificuldades de aprendizagem, desenvolvimento infantil, técnicas de estudo, etc.]...
+* E-books, guias práticos, atividades e outros materiais digitais focados em dificuldades de aprendizagem, desenvolvimento infantil, técnicas de estudo, etc.
 
 💻 **Sessões Online:**
 * Atendimento psicopedagógico individualizado para crianças, adolescentes ou adultos.
